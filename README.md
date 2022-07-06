@@ -26,4 +26,4 @@ Become part of our community by joining our discord server.
 ## Contact Us
 
 If you have any questions or concerns you can 
-email us at <developmentplus1@gmail.com>!
+email us at <thedev132@gmail.com>!
